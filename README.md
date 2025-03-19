@@ -8,3 +8,4 @@
 ![i2](https://github.com/user-attachments/assets/5867ebae-f938-4b1f-819d-78b973ce196e)
 ![i3](https://github.com/user-attachments/assets/e01009a3-4da9-4b29-97fd-f30cd2e9f542)
 ![i4](https://github.com/user-attachments/assets/19f69190-bd59-4192-a978-44a0eaa62a7f)
+![employee](https://github.com/user-attachments/assets/bea09656-53d7-4360-9dae-2b9669c10335)
